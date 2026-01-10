@@ -1,2 +1,3 @@
+<p align="center">
 
-![eleanor-forte-eleanor](https://github.com/user-attachments/assets/9c6734ab-52b9-41e5-ac39-ce3d1c8d1589)
+![diamond-houseki-no-kuni](https://github.com/user-attachments/assets/8380b256-020e-4f6d-9efd-cbf85455466e)
