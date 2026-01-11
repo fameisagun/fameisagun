@@ -4,4 +4,4 @@
 
 
 
-[📚](https://mewhehe.atabook.org/)
+[ata](https://mewhehe.atabook.org/)
