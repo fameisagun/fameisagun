@@ -1,6 +1,7 @@
 <div align="center">
 
-![diamond-houseki-no-kuni](https://github.com/user-attachments/assets/8380b256-020e-4f6d-9efd-cbf85455466e)
+
+![044c0c9100e5f39497ca8c3f59ecbf52](https://github.com/user-attachments/assets/6d62e9b6-19e0-4bec-baed-aa68217ab151)
 
 
 
