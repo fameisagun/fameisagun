@@ -1,6 +1,6 @@
 <div align="center">
 
-![overwrite](https://profile-counter.glitch.me/your-username/count.svg)
+![Visitors](https://komarev.com/ghpvc/?username=fameisagun&color=ff69b4&style=flat-square&label=overwrite)
 
 
 ![xchara-xgaster](https://github.com/user-attachments/assets/a5f5cde9-f5a9-4c09-a867-043fa62b6e5b)
