@@ -1,6 +1,6 @@
 <div align="center">
 
-![Visitors](https://komarev.com/ghpvc/?username=fameisagun&color=897098&style=flat-square&label=overwrite)
+![Visitors](https://komarev.com/ghpvc/?username=fameisagun&color=897098&style=for-the-badge&label=overwrite)
 
 
 ![xchara-xgaster](https://github.com/user-attachments/assets/a5f5cde9-f5a9-4c09-a867-043fa62b6e5b)
