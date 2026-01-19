@@ -4,7 +4,7 @@
 
 
 
-![Kid_Chara_Plush-SV2-P-1_100x png](https://github.com/user-attachments/assets/16358783-acf6-4e0d-a25b-1844257ab08b)
+![Kid_Chara_Plush-SV2-P-1_10x png](https://github.com/user-attachments/assets/16358783-acf6-4e0d-a25b-1844257ab08b)
 
 
 
