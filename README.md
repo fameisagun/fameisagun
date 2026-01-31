@@ -10,4 +10,4 @@
 
 
 
-[atabook](https://mewhehe.atabook.org/)
+[atabook](https://mewhehe.atabook.org/) [🍓](https://miwhehe.straw.page)
