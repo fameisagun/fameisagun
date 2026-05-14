@@ -10,7 +10,7 @@
 
 
 
-
+signata / straw if are nullscape fan!!
 
 [ata](https://mewhehe.atabook.org/)  ,  [straw🍓](https://miwhehe.straw.page) 
-<img width="126" height="126" alt="MartSlide" src="https://github.com/user-attachments/assets/f543e67b-4579-44e9-a500-1d29d409ebce" />
+
