@@ -2,7 +2,7 @@
 <div align="center">
 
 
-![Visitors](https://komarev.com/ghpvc/?username=fameisagun&color=286093&style=flat&label=mart)
+![Visitors](https://komarev.com/ghpvc/?username=fameisagun&color=afcefd&=style=flat&label=vb)
 
 
 
