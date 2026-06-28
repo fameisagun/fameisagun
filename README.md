@@ -20,7 +20,9 @@
 
 
 
-
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=3078a4&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=bmf!+and+sign+ata" alt="hnk">
+</div>
 
 
 
